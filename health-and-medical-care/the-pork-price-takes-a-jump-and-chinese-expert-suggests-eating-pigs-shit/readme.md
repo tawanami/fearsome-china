@@ -1,0 +1,1 @@
+Chinese news said that chinese expert suggests people eat pigs shit.
